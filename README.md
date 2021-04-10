@@ -8,5 +8,5 @@
 
 ## Contacts
 
-- ✉️ [zy2bas@gmail.com]
+- ✉️ zy2bas@gmail.com
 - 💬 [@I_Zyablitsev](https://t.me/I_Zyablitsev)
