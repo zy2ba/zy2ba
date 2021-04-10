@@ -9,4 +9,4 @@
 ## Contacts
 
 - ✉️ zy2bas@gmail.com
-- 💬 [@I_Zyablitsev](https://t.me/I_Zyablitsev)
+- 💬 [@zy2ba](https://t.me/zy2ba)
